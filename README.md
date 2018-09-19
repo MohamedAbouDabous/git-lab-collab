@@ -4,11 +4,11 @@ Här förstör vi git
 
  ## Välkomna!
  
- ### hamodi:
+ ### hamodi abou:
 
- ### Daniel:
+ ### Daniel salin:
  #### "He´s in the army now"
 
 
- ### Astrid:
+ ### Astrid sinabian:
  #### "hon är tung"
